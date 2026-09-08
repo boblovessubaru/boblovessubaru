@@ -8,3 +8,5 @@ waow wip still
 
 <a href="https://deadlypoisonn.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 <a href="https://boblovessubaru.straw.page/">₊˚°.♱˙⋆✮STRAWP˚₊‧⁺⋆♱
+
+w2i bc im offtab most of the time or making a skin and might not see . nf
