@@ -6,7 +6,7 @@ waow wip still
 
 <img width="480" height="390" alt="unnamed (32)" src="https://github.com/user-attachments/assets/5f0dc301-3072-4097-9fe8-cdcb1e2845ef" />
 
-<a href="https://deadlypoisonn.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
-<a href="https://boblovessubaru.straw.page/">₊˚°.♱˙⋆✮STRAWP˚₊‧⁺⋆♱
+<a href="https://deadlypoisonn.atabook.org">ATABOOK</a> <br>
+<a href="https://hypnoticgold.straw.page/">STRAWPAGE
 
 w2i bc im offtab most of the time or making a skin and might not see . nf
